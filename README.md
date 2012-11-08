@@ -13,6 +13,6 @@ Commons.
 
 Have all future war stories been done? Or have they been refined to
 the absurd? (Witness the millisecond-spanning engagements of the Ships
-in Iain M. Banks? Culture universe, especially
+in Iain M. Banks' Culture universe, especially
 [Excession](http://en.wikipedia.org/wiki/Excession). What next for
 future war?
